@@ -1,0 +1,1 @@
+# takim-3-egzersiz
